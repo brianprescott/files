@@ -1,1 +1,1 @@
-# Brian Prescott's public files
+# Brian C. Prescott's public files
